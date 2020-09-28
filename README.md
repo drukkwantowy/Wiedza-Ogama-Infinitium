@@ -1,0 +1,1 @@
+# Wiedza-Ogama-Infinitium
