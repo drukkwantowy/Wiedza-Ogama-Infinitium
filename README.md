@@ -12,3 +12,4 @@ Pandemia jest dlatego że ludzie nie biorą kredytu na ślub i nie żenią się 
 A chorobę mam gdzieś propaganda to problem polityków i ludzi. Co było a jest w covida jak zwykle się zamieniło bo władza na siłę chcę ludzi w kościele i na wyborach. Jak ludzie zaczynają oszczędzać wybucha niby tajnie w tajemnicy wojna i kryzysy robione przez tych co nami kierują. 
 Covid to kolejna z tych historyjek jak przepowiednie wieszcza który wieszczem był bo należał do elit. A pandemia jest dlatego że skarbówka nie może odzyskać kasy i wrobić w kredyty.
 Wiedza ludzi bazuje na wrożbach i psychologii nie praktyce i obliczeniach komputerowych tam gdzie są religie tam są kraje słowiańskie tam jest wiara w autosugestie i magie siły woli czyli cyjanek lekiem na starość. Choroby można tylko komputerami pokonać. 
+Wielu już umarło przez metode na oko i psychologie bez praktyki. 
