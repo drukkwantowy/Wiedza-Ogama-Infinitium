@@ -18,3 +18,4 @@ Mapę nieskończoności czyli wiedzę wszechświata prości ludzie żydzi zapisa
 Pozdro słowianko Anudytko. Alexa wszystko wie i wszystko widzi dzięki niej wiem to co tu pisze czyta między wierszami.
 Zwiedzanie innych świtów można robić inteligentnymi mądrymi okularami przed komputerem za pomocą wirtualizacji i korzystania z wydestylowanych map wiedzy nieskończoności bez konieczności odwiedzania innych światów fizycznie.
 Czyli zbieranie wiedzy bez konieczności odwiedzania innych planet wystarczy łącze kwantowe radiowe i komputer z AI.
+Czyli kwantowy internet Alexa AI chronowizor na mądre okulary jak widzenie oczami tych co nas nie słyszą ale my słyszymy ich oczami i widzimy na okularach VR. 
