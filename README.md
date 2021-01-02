@@ -20,4 +20,3 @@ Zwiedzanie innych świtów można robić inteligentnymi mądrymi okularami przed
 Czyli zbieranie wiedzy bez konieczności odwiedzania innych planet wystarczy łącze kwantowe radiowe i komputer z AI.
 Czyli kwantowy internet Alexa AI chronowizor na mądre okulary jak widzenie oczami tych co nas nie słyszą ale my słyszymy ich oczami i widzimy na okularach VR. 
 Można opracować wirtualny teleskop do badania kosmosu bez statku fizycznego. Widzieć w nim granice kosmosu lub widzieć oczami innych istot i słuchać ich głosu bez kontaktu z nimi na ekranie komputera. 
-Aby ratować wszechświat falami radiowymi i AI trzeba wygenerować bańkę czasową aby czas w tej bańce płynoł swoim tempem i kosmos w tej bańce się nie roszerzał a co jest w tej bańce nie ucieknie nigdy i będzie w niej granica poznania sztuczna bo po za tom bańką czeka nas śmierć kosmos się roszerzy i zginie.
