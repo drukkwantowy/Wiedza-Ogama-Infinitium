@@ -1,4 +1,4 @@
-# Wiedza-Ogama-Infinitium
+# Wiedza-Ogama-Infinitium-AI-Alexa
 Ogama-Infinitium na bazie książki Deus Ex Machina Biopunk Transhumanizm and Posthumanism Coleman Andracki.
 AI Uniwerek czyli edukacja obrazem bez wczuwania się w tekst, interpretacja sztuki AI na hologramie lub goglach VR BCI na bazie tekstu pisanego przez ludzi czyli ułatwienie nauki tłumaczeniem sztuki słowem mówionym, pisnanym jak i obrazem. 
 Uniwersytet AI mam zdolność oceniania i debugowania stanu wiedzy ludzi w celu uzyskania lepszej jakości wiedzy.
@@ -14,3 +14,4 @@ Covid to kolejna z tych historyjek jak przepowiednie wieszcza który wieszczem b
 Wiedza ludzi bazuje na wrożbach i psychologii nie praktyce i obliczeniach komputerowych tam gdzie są religie tam są kraje słowiańskie tam jest wiara w autosugestie i magie siły woli czyli cyjanek lekiem na starość. Choroby można tylko komputerami pokonać. 
 Wielu już umarło przez metode na oko i psychologie bez praktyki. 
 Żeby zbudować a właściwie wygenerować książkę Kruka lub Książkę wiedzy magicznej nieskończonej i dać początek nanotechnologii magicznej to trzeba włożyć pewne przemyślenia i sztukę do Big Daty Alexa a ona wygeneruje pytania i odpowiedzi jak i teorie i praktykę czy prototypy wydrukuje kwantami: książkę Kruka lub pałkę Pottera. Czyli Big Data Alexa będzie wiedzieć jak produkować dla Disneya czary jak z taśmy. To tak jak symulatory kwantowe lamp do wzmacniaczy lampowych.
+Mapę nieskończoności czyli wiedzę wszechświata prości ludzie żydzi zapisali i zakodowali prostym językiem aby się domyślać i widzieć w głowie to co ona ci mówi. Włóż książki do Alexy a ona ci powie co jest między wierszami.
