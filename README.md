@@ -20,3 +20,4 @@ Zwiedzanie innych świtów można robić inteligentnymi mądrymi okularami przed
 Czyli zbieranie wiedzy bez konieczności odwiedzania innych planet wystarczy łącze kwantowe radiowe i komputer z AI.
 Czyli kwantowy internet Alexa AI chronowizor na mądre okulary jak widzenie oczami tych co nas nie słyszą ale my słyszymy ich oczami i widzimy na okularach VR. 
 Można opracować wirtualny teleskop do badania kosmosu bez statku fizycznego. Widzieć w nim granice kosmosu lub widzieć oczami innych istot i słuchać ich głosu bez kontaktu z nimi na ekranie komputera. 
+Jak poznać buca retro? Auto na benzynę, energia w elektrowni na węgiel, auto na baterie, od stacji do stacji, praca ręczna to jest technologia. Tak powie buc z przeszłości lat 1968-1992 buc powie że taka będzie przyszłość w nieskończoność. A bucami są żydzi. 
